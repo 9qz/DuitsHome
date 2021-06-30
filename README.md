@@ -1,2 +1,1 @@
-# Alucard Selfbot UnOffical Page
- - Dev: ♡**xanthe**♡, fweak
+# Duits Client Collection
